@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JimmyNuCarti AKA OJ
+- 👀 I’m interested in Coding/Programing.
+- 🌱 I’m currently learning .lua and unity
+- 💞️ I’m looking to collaborate on whomever will be able to help me learn as i am new.
+- 📫 How to reach me, please msg me on discord at OJNUCARTI#5625. Or email me - jm.ghost@hotmail.com
